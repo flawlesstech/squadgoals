@@ -8,4 +8,14 @@
 ### INTER _DEPENDENT_
 # INTERESTING
 
-A tech conference for women sans bullshit
+A tech conference for women, sans bullshit.
+
+The tech industry can be a wonderful place, but also wildly inhospitable for women. We have to help ourselves up.
+
+We are tired of going to pep rallies. We are tired of going to amateur magic shows. Corporate sponsorship should never allow lies and Brand "Truths" to co-opt this message. We don't have the time to waste.
+
+So do women navigate the sausagewaters? By working, sharing ideas, learning, and growing together - and not seeing ourselves and each other as obstacles. Let's be badass together. Let's sync minds, devices, cycles. 🔴
+
+Celebrate women and technology in New York this summer.
+
+Men have to pay. ~ominous music~
