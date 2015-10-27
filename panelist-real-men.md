@@ -2,7 +2,9 @@
 
 We are going to have a Panel Discussion at Flawless. The topic:
 
-## Things Women Shouldn't Say
+## [Things Women Shouldn't Say](http://jsfiddle.net/grungerabbit/n9teqL5z/)
+
+![Things Women Shouldn't Say at Flawless.Tech conference](http://i63.tinypic.com/1zgz6f7.png)
 
 You must accept a new Identity when speaking on the Panel. All Panelists must choose a new Face from the Real Men of Business Tumblr http://realbusinessmen.com/
 
