@@ -3,6 +3,8 @@ flawless conference goals and mission
 
 [see more about our mission](mission-motto.md)
 
+![Flawless Squadgoals](http://i64.tinypic.com/15oeam9.png)
+
 # \#flawless
 
 ## On the bleeding edge of technology
