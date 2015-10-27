@@ -23,13 +23,13 @@ Men from the following organizations will have a special deal:
 
 ### Senior Executive Package - $5,000
 
-- Everything in the Executive Package, but you get 5 bro passes for your bros (a $10,000 value!)
+- Everything in the Executive Package, PLUS you get 5 bro passes for your bros (a $10,000 value!)
 - Includes one (1) free Blue Bottle Coffee and one (1) free Hoppy but Refreshing IPA (personally served by a Woman)
 - Additional Blue Bottle Coffee and Hoppy but Refreshing IPA will be available for purchase.
 
 ### The Christian Grey - $1,000,000
 
-- Everything in the Senior Executive Package, but the beverages will be wrapped in Black Leather and 14K Gold Coozies made by a Woman Artisan sourced on Etsy
+- Everything in the Senior Executive Package, PLUS the beverages will be wrapped in Black Leather and 14K Gold Coozies made by a Woman Artisan sourced on Etsy
 
 ### Gooooooooo, Daddy!!!!!! - $2,000,000 for one hour
 
