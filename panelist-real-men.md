@@ -15,3 +15,4 @@ ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES
 - Seymour Butts
 - Ben Dover
 - Max Power
+- Richard Hemsley III
