@@ -12,7 +12,28 @@ ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES
 
 # Acceptable Names for Panel
 
-- Seymour Butts
+- Seymour Butz
 - Ben Dover
 - Max Power
 - Richard Hemsley III
+
+### Anything from a Simpsons Prank Call
+
+https://en.wikiquote.org/wiki/List_of_Simpsons_Prank_Calls
+
+- Heywood Yapinchme
+- Al Coholic
+- Oliver Klozoff
+- Ivan Patience Freely
+- Jacques Strap
+- Homer Sexual
+- Michael Rotch
+- Hugh Jass
+- Armand Hugginkiss
+- Ura Snotball
+- Ollie Tabooger
+- Heywood Ulysses Kuddulmee
+- Elvis Jagger Abdul-Jabbar
+- Ahmed Adoudi
+- Ima Wiener
+- Yuri Nater
