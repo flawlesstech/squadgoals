@@ -22,6 +22,9 @@ ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES. PLEASE SEND P
 - Richard Short
 - John Smallberries
 - Suk Mai Dong
+- Matt Stackhouse
+- Jimmy Steam
+- Robert Swagger, Esquire (his friends call him bswag)
 
 ### Anything from a Simpsons Prank Call
 
