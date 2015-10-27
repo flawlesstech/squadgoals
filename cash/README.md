@@ -27,8 +27,12 @@ Men from the following organizations will have a special deal:
 
 - Attend one hour (60 minutes) of Flawless, as a cisgender man!
 - $200 is an estimate; will be Prorated based on final Woman attendance fee
-- `var x = final fee for Woman Attendee;` `var t = conference duration;` `var y = fraction one Hour comprises of the full t;`
+- `var x = final fee for Woman Attendee;`
+- `var t = conference duration;`
+- `var y = fraction one Hour comprises of the full t;`
 - ((x * 1.5) * y) - to account for the pay inequities in the tech industry. Sorry, the wage gap sucks! Darn it!
+- *The cheaper the Woman attendance fee ends up being, the cheaper the Bro Pass is*
+- The cheapest Bro Pass ever will be is $50
 
 ### Senior Executive Package - $5,000
 
