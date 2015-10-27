@@ -19,11 +19,20 @@ Men from the following organizations will have a special deal:
 
 ### Executive Package - $2,000
 
+> Our nicest, most popular package!
+
 - Attend the exclusive Flawless Tech Conference for Women, but as a cisgender man!
+
+### Bro Pass - $200 (rate variable) for one hour
+
+- Attend one hour (60 minutes) of Flawless, as a cisgender man!
+- $200 is an estimate; will be Prorated based on final Woman attendance fee
+- var x = final fee for Woman Attendee; var t = conference duration; var y = portion one Hour comprises of the full t;
+- ((x * 1.5) / y) - to account for the pay inequities in the tech industry. Sorry, the wage gap sucks!
 
 ### Senior Executive Package - $5,000
 
-- Everything in the Executive Package, PLUS you get 5 bro passes for your bros (a $10,000 value!)
+- Everything in the Executive Package, PLUS you get 5 bro passes for your bros (a $1,000 value!)
 - Includes one (1) free Blue Bottle Coffee and one (1) free Hoppy but Refreshing IPA (personally served by a Woman)
 - Additional Blue Bottle Coffee and Hoppy but Refreshing IPA will be available for purchase.
 
