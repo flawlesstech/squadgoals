@@ -19,7 +19,7 @@ Men from the following organizations will have a special deal:
 
 ### Executive Package - $2,000
 
-> Our nicest, most popular package!
+> Our nicest, most popular package! The nicest one we've ever seen!
 
 - Attend the exclusive Flawless Tech Conference for Women, but as a cisgender man!
 
@@ -39,6 +39,13 @@ Men from the following organizations will have a special deal:
 - Everything in the Executive Package, PLUS you get 5 bro passes for your bros (a $1,000 value!)
 - Includes one (1) free Blue Bottle Coffee and one (1) free Hoppy but Refreshing IPA (personally served by a Woman)
 - Additional Blue Bottle Coffee and Hoppy but Refreshing IPA will be available for purchase.
+
+### The John - $500,000
+
+- Everything in the Senior Executive Package
+- You can also come up with a custom Name and Face (YOUR NAME and FACE) for one of our lovely [Manly Caliber Panelists](..panelist-real-men.md)!
+- You get to choose which one of our lovely ladies adopt YOUR NAME and FACE!!!!
+- **YOU DO NOT GET TO CHOOSE WHAT THE JOHN SAYS**
 
 ### The Christian Grey - $1,000,000
 
