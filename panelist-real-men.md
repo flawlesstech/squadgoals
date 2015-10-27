@@ -18,6 +18,9 @@ ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES
 - Richard Hemsley III
 - Phil McCracken
 - Jack Meoff
+- Juan Laungdong
+- Richard Short
+- John Smallberries
 
 ### Anything from a Simpsons Prank Call
 
