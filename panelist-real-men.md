@@ -8,7 +8,7 @@ You must accept a new Identity when speaking on the Panel. All Panelists must ch
 
 You must also choose one of the following Acceptable Names, or else come up with one of the same Manly Caliber and Classiness. NO WEAK WOMANLY NAMES ALLOWEDD!!!!!!!!!1!@#!
 
-ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES
+ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES. PLEASE SEND PULL REQUESTS OF GREAT VIRILITY
 
 # Acceptable Names for Panel
 
