@@ -6,7 +6,7 @@ I'm working to make it as free as possible for women to attend. There will be sc
 
 ## Men
 
-All participants are expected to adhere to the Code of Conduct. Men will be escorted out of the conference by Security and blackballed.
+All participants are expected to adhere to the Code of Conduct. Flawless is a safe space. Violators will be escorted out of the conference by Security and blackballed.
 
 Select scholarship and volunteer opportunities are available to pre-screened men, especially students and Junior level men.
 
