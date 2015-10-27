@@ -21,6 +21,7 @@ ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES
 - Juan Laungdong
 - Richard Short
 - John Smallberries
+- Suck Mai Dong
 
 ### Anything from a Simpsons Prank Call
 
