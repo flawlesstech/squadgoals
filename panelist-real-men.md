@@ -17,6 +17,7 @@ ALSO THIS LIST IS ONGOING. PLEASE SUGGEST NEW MANLY CALIBER NAMES
 - Max Power
 - Richard Hemsley III
 - Phil McCracken
+- Jack Meoff
 
 ### Anything from a Simpsons Prank Call
 
