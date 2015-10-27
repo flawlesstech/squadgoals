@@ -2,7 +2,11 @@
 
 ## Women
 
-I'm working to make it as free as possible for women to attend. There will be scholarships and funding available, even if the final conference ends up being paid.
+We're working to make it as free as possible for women to attend. 
+
+There will be scholarships and funding available, even if the final conference ends up being paid.
+
+Sponsorships will directly fund women to attend the conference.
 
 ## Men
 
@@ -30,9 +34,9 @@ Men from the following organizations will have a special deal:
 - `var x = final fee for Woman Attendee;`
 - `var t = conference duration;`
 - `var y = fraction one Hour comprises of the full t;`
-- ((x * 1.5) * y) - to account for the pay inequities in the tech industry. Sorry, the wage gap sucks! Darn it!
+- `((x * 1.5) * y)` - to account for the pay inequities in the tech industry. Sorry, the wage gap sucks! Darn it!
 - *The cheaper the Woman attendance fee ends up being, the cheaper the Bro Pass is*
-- The cheapest Bro Pass ever will be is $50
+- **The cheapest Bro Pass ever will be is $50**
 
 ### Senior Executive Package - $5,000
 
@@ -42,7 +46,7 @@ Men from the following organizations will have a special deal:
 
 ### The Superlike - $20,000, buy as many as you can afford, big boy
 
-- If you are interested in one (1) Woman at the Conference FOR PROFESSIONAL REASONS ONLY - we will arrange for you to talk to her for a FULLY PAID, FULLY EQUAL TO MEN OF HER EDUCATION AND BACKGROUND position at your company
+- If you are interested in one (1) Woman at the Conference **FOR PROFESSIONAL REASONS ONLY** - we will arrange for you to talk to her for a **FULLY PAID, FULLY EQUAL TO MEN OF HER EDUCATION AND BACKGROUND** position at your company
 - If you are an asshole, you will receive FULL withering media coverage
 
 ### The John - $500,000
