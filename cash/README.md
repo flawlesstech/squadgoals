@@ -25,9 +25,13 @@ Men from the following organizations will have a special deal:
 - Everything in the Executive Package, but you get 5 bro passes for your bros (a $10,000 value!)
 - Includes Blue Bottle Coffee and a Hoppy but Refreshing IPA (personally served by a Woman)
 
-### Gooooooooo, Daddy - $2,000,000 for one hour
+### The Christian Grey - $1,000,000
 
-- Send as many White Men as you want to Flawless, for an hour!
-- White Men will be able to Misinterpret charts and talk about their Women
-- Minimum of 100 scathing tweets about your Brand Truth guaranteed
+- Everything in the Senior Executive Package, but the beverages will be wrapped in Black Leather and 14K Gold Coozies made by a Woman Artisan found on Etsy
+
+### Gooooooooo, Daddy!!!!!! - $2,000,000 for one hour
+
+- Send as many White Men as you want to Flawless, for an hour! They will get one free Blue Bottle Coffee and one free Hoppy but Refreshing IPA (personally served by a Woman)
+- White Men will be able to Misinterpret charts and talk about their Important Women
+- Minimum of 100 scathing tweets about your Brand Truth™ guaranteed
 - A colonialism adventure for the modern Man!
