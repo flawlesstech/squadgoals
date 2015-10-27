@@ -34,6 +34,7 @@ Chill sponsors we could reach out to for funds and other support.
 - Sir Richard's Condom Company
 - Brooklyn Brewery
 - Classpass
+- Makerbot
 
 ## #SQUADGOALS
 
@@ -54,3 +55,7 @@ Chill sponsors we could reach out to for funds and other support.
 - Dior
 - Diesel
 - Container Store
+- Home Depot
+- CB2
+- Crate and Barrel
+- Ally Bank
