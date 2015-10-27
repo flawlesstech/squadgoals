@@ -8,7 +8,7 @@ I'm working to make it as free as possible for women to attend. There will be sc
 
 All participants are expected to adhere to the Code of Conduct. Flawless is a safe space. Violators will be escorted out of the conference by Security and blackballed.
 
-Select scholarship and volunteer opportunities are available to pre-screened men, especially students and Junior level men.
+Select scholarship and volunteer opportunities are available to pre-screened men, especially students and new grad/Junior level men.
 
 Men from the following organizations will have a special deal:
 
