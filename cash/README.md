@@ -40,16 +40,21 @@ Men from the following organizations will have a special deal:
 - Includes one (1) free Blue Bottle Coffee and one (1) free Hoppy but Refreshing IPA (personally served by a Woman)
 - Additional Blue Bottle Coffee and Hoppy but Refreshing IPA will be available for purchase.
 
+### The Superlike - $20,000, buy as many as you can afford, big boy
+
+- If you are interested in one (1) Woman at the Conference FOR PROFESSIONAL REASONS ONLY - we will arrange for you to talk to her for a FULLY PAID, FULLY EQUAL TO MEN OF HER EDUCATION AND BACKGROUND position at your company
+- If you are an asshole, you will receive FULL withering media coverage
+
 ### The John - $500,000
 
 - Everything in the Senior Executive Package
 - You can also come up with a custom Name and Face (YOUR NAME and FACE) for one of our lovely [Manly Caliber Panelists](..panelist-real-men.md)!
 - You get to choose which one of our lovely ladies adopt YOUR NAME and FACE!!!!
-- **YOU DO NOT GET TO CHOOSE WHAT THE JOHN SAYS**
+- **YOU DO NOT GET TO CHOOSE OR INFLUENCE WHAT THE WOMAN SAYS**
 
 ### The Christian Grey - $1,000,000
 
-- Everything in the Senior Executive Package, PLUS the beverages will be wrapped in Black Leather and 14K Gold Coozies made by a Woman Artisan sourced on Etsy
+- Everything in The John, PLUS the beverages will be wrapped in Black Leather and 14K Gold Coozies made by a Woman Artisan sourced on Etsy
 
 ### Gooooooooo, Daddy!!!!!! - $2,000,000 for one hour
 
