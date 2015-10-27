@@ -15,6 +15,7 @@ Men from the following organizations will have a special deal:
 - hackNY
 - Tech Collab NYC member orgs https://github.com/TechCollabNYC/member-organizations
 - Nasdaq Product Design
+- Any official Friends of Flawless
 
 ### Executive Package - $2,000
 
