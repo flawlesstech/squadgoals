@@ -14,6 +14,12 @@ Chill sponsors we could reach out to for funds and other support.
   - Google X
 - Clef
 - Twitter
+- Addepar
+- Gusto
+- Palantir
+- NetApp
+- Slack
+- Square
 
 ## In-Kind Sponsors
 
@@ -24,6 +30,10 @@ Chill sponsors we could reach out to for funds and other support.
 - USAA
 - Mailchimp
 - StickerMule
+- HousingWorks
+- Sir Richard's Condom Company
+- Brooklyn Brewery
+- Classpass
 
 ## #SQUADGOALS
 
@@ -43,3 +53,4 @@ Chill sponsors we could reach out to for funds and other support.
 - Comme des Garçons
 - Dior
 - Diesel
+- Container Store
