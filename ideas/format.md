@@ -7,3 +7,5 @@
 - Parties
 - Career Fair
 - Charity
+- Unconference 
+- Break out groups
